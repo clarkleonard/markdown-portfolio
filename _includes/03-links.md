@@ -1,1 +1,1 @@
-[The Boring Company](https://www.boringcompany.com/)
+[The Boring Company](https://www.boringcompany.com)
